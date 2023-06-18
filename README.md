@@ -1,2 +1,1 @@
-# akaspanion.github.io.github.io
- 
+# akaspanion.github.io
